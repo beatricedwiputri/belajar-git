@@ -7,3 +7,4 @@ ini revisi keberapa ya
 and im in the bad place now nianfodan 
 tuktiktaktiktuktiktaktiktuktiktaktiktuk
 7 7
+8
