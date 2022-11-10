@@ -10,3 +10,4 @@ tuktiktaktiktuktiktaktiktuktiktaktiktuk
 8
 9
 10
+oke ini yang terakhir ini ke 11
